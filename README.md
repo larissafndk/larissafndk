@@ -1,5 +1,6 @@
-# 💫 About Me:
-I am mechanical engineering student at Gebze Technical University. <br>I work as a leader at YetGen.<br>I am mechanical team leader at INTEM.<br>I am someone who tries to improve herself in everything. I work especially in the fields of software and technical drawing.<br>My email adress is findiklarissa@gmail.com . 
+# 🌻 About Me:
+I am mechanical engineering student at Gebze Technical University. 🦋
+ <br>I work as a leader at YetGen.<br>I am mechanical team leader at INTEM.<br>I am someone who tries to improve herself in everything. I work especially in the fields of software and technical drawing.⚙️<br>My email adress is findiklarissa@gmail.com . 
 
 
 ## 🌐 Socials:
